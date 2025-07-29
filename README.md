@@ -1,1 +1,1 @@
-# politica-privacidad-AppITI
+# Privacy Policy AppITI
